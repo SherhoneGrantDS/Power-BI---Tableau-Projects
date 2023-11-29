@@ -24,6 +24,6 @@ I invite collaboration and feedback! If you share an interest in data visualizat
 
 ## Connect with Me
 
-Let's connect and discuss data visualization, analytics, and more. You can find me on LinkedIn: [linkedin.com/in/yourusername](https://www.linkedin.com/in/yourusername).
+Let's connect and discuss data visualization, analytics, and more. You can find me on LinkedIn: [linkedin.com/in/SherhoneGrant](https://www.linkedin.com/in/SherhoneGrant).
 
 Happy visualizing! 📊🚀
